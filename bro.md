@@ -1,1 +1,1 @@
-Hallo nama saya adalah fuji taufik fahrul rahman cuy
+Semoga menjadi programer
