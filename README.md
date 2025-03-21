@@ -1,1 +1,1 @@
-# latjavascript1
+#ini adalah latihan java script pertaman saya
